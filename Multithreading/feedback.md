@@ -1,0 +1,2 @@
+It would be great if we could get some additional time in solving this issue. 
+It's not that the question was tough, but simply because in a time bound environment, along with zillions of thoughts to give our best, just like any other exam, we miss the overall energy in solving it on first attempt, and most importantly, miss to work on our whiteboard, where it's a breeze to solve any issue in a focused manner.
